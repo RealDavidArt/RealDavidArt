@@ -1,4 +1,4 @@
-# David Wooten Jr
+# David Art Wooten
 
 Enterprise sales leader, AI and cloud infrastructure.
 
